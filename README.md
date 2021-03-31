@@ -14,5 +14,5 @@ At final this product will offer you,
 Check out this,
 https://www.youtube.com/c/TwinPrediction
 
-LinkedIn.
+LinkedIn,
 www.linkedin.com/in/dhanu-aravinth-84b65b176
